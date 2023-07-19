@@ -1,0 +1,1 @@
+I'm a fullstack developer capable of responding to demands and requests, I adapt easily and I can provide knowledge on the subject in terms of React, React-Query, React-Redux, NodeJs, NestJs, Express, Mongoose, Sequelize, MongoDB, PostgreSQL, MySQL, AWS(S3, EC2) and Java
