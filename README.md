@@ -12,4 +12,4 @@ Soy un Desarrollador Web Full Stack, destaco mis habilidades blandas tales como 
 
 Contactame en caso de requerir un Desarrollador Analitico, Resolutivo y Adaptativo
 
-Mail : axel.s09kpo@gmail.com Telefono: +54 341 6124966 Linked in: www.linkedin.com/in/axel-suarez-372446267
+Mail : axel.s09kpo@gmail.com Telefono: +54 341 3073212 Linked in: www.linkedin.com/in/axel-suarez-372446267
